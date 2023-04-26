@@ -1,1 +1,1 @@
-# yokonishikawa.github.io
+# YokoNishikawa.github.io
